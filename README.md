@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @faruqputraaa
-- 👀 I’m interested in ...
+- 👀 I’m interested in Fishing
 - 🌱 I’m currently learning Web Development
 - 📫 How to reach me on instagram @Faruqputraa
 - ⚡ Fun fact: my life is always fun without fact
